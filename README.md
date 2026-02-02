@@ -1,2 +1,2 @@
 # Doki-doki-scenarios-
-You...or the Mc (in the mod) will be in different scenarios with each girl whether it's how y'all met or the confession. Go through every scenario all the way up to the proposal. Which girl are you marrying?
+You...or the Mc will go through different scenarios with each of the dokis whether it's meeting each other or a confession of love. Go through every scenario all the way up until the proposal. Which girl will you marry?
